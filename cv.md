@@ -37,6 +37,8 @@ I consider myself as a hard-working person and good team worker. My strengths ar
 
 ## Languages
 
+---
+
 - Russian - Native
 - English - Upper-Intermediate (B2) ([EF SET Certificate](https://www.efset.org/cert/CDpzoZ))
 - Polish - Intermediate (B1)
